@@ -7,7 +7,7 @@ TELEGRAM COURSE INDEXING
   indexing
   request indexing
   contact bot
-  5 Paid course
+  3 Paid course
   
   i have acknowledge your message, don't repeat your message. there are 10+ message done at a time, so do a single message briefing if still any problem remain.
   
